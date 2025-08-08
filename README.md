@@ -9,7 +9,7 @@
 # Liệm (còn gọi là khâm liệm) là nghi thức đặt thi hài người mất vào quan tài, sau khi đã thực hiện các bước tắm rửa, thay đồ, khâm liệm và bọc vải liệm (nếu theo phong tục cổ). Đây là một bước rất quan trọng trong quy trình tổ chức tang lễ truyền thống, đánh dấu thời điểm thân xác người đã khuất được bảo quản và chuẩn bị đưa đi an táng hoặc hỏa táng.
 
 # 
-
+Xem thêm: https://maitanggiangtho.vn/nguoi-chet-bao-lau-thi-liem/
 # Việc liệm không chỉ là hành động vật lý mà còn mang ý nghĩa tiễn biệt, thể hiện sự chu đáo, trọn nghĩa đối với người quá cố.
 
 # 
